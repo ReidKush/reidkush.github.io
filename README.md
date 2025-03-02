@@ -1,6 +1,1 @@
-# reidkush.github.io
-Collection of Personal Works
 
-My name is Reid, and I’m currently a Junior at Temple University, majoring in engineering. I’m 27 and excited to be diving into the main courses of my studies to focus on my academic and professional goals. Balancing life with school has been a unique journey, and I’m looking forward to leveraging my experiences in my engineering courses. I’m particularly eager to engage in hands-on projects and labs that will allow me to apply my knowledge in practical settings. Additionally, I’m thrilled about the opportunities to collaborate with peers on engineering projects.
-
-Beyond the classroom, I’m also looking forward to making the most of my time at Temple by participating in extracurricular activities and campus events. I plan to join engineering related student organizations. I hope to connect with like minded individuals and work on exciting group projects. Attending industry seminars and networking events hosted by the university will be invaluable for building professional connections, too. Additionally, I’m excited to explore the campus life, from cheering on the Temple Owls at sports events to enjoying the diverse range of cultural/social activities available. This dynamic environment promises to be both challenging and rewarding, and I’m eager to embrace all of it.
